@@ -1,4 +1,4 @@
 # JoelsonXxX
 Opa 🤙
-![![image](https://github.com/user-attachments/assets/5c55b9ea-7f19-4a93-9a0b-d75997959c87)
+![![image](https://github.com/user-attachments/assets/a2aabab9-067b-4a37-a19b-41e6e4100b0a)
 ](link)
